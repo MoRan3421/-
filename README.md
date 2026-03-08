@@ -16,7 +16,7 @@
 [![小红书](https://img.shields.io/badge/小红书-14.2w粉-FF5A5F?style=for-the-badge&logo=xiaohongshu&logoColor=white)](https://www.xiaohongshu.com/)
 
 **✨ 成都·21岁·男生(他/他们)·创始人·YouTuber·TikToker·程序猿·中医研习6年·心理学深度迷·美食艺术家·设计师·玩家·梦想家 ✨**  
-**📍 坐标：熊猫之都 | 💻 工作：写代码/搞创作/熬药/炒菜/剪视频 | ♾️ 信条：永远写不完，一直在成长**
+**📍 坐标：马来西亚 | 💻 工作：写代码/搞创作/熬药/炒菜/剪视频 | ♾️ 信条：永远写不完，一直在成长**
 
 ---
 
